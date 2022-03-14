@@ -38,9 +38,13 @@ _**Para los chiles**_
 
 
 #**PREPARACIÓN**#
-
-<li>1.</li> Para el relleno, calentar el aceite en una sartén grande, sofreír la cebolla y el ajo hasta que queden transparentes. Agregar la carne y cocinar hasta que tome color.
-<li>2.</li> Agregar la manzana, pera, pasas, piñones y mezcla de condimentos. Sazonar con el Knorr® Caldo de Costilla incorporando todos los ingredientes Cocinar 3 min.
-
+<ol>
+<li> Para el relleno, calentar el aceite en una sartén grande, sofreír la cebolla y el ajo hasta que queden transparentes. Agregar la carne y cocinar hasta que tome color.</li>
+<li>Agregar la manzana, pera, pasas, piñones y mezcla de condimentos. Sazonar con el Knorr® Caldo de Costilla incorporando todos los ingredientes <strong><em>  Cocinar 3 min. </em><strong> </li> 
+<li>Mezclar Knorr® Tomate Deshidratado con el agua y combinarlo en la preparación anterior. Dejar que se integren todos los ingredientes y que se espese ligeramente.  <strong><em> Aprox 3 minutos más.</em><strong></li>
+<li> Para la Nogada, licuar la nuez, azúcar, nuez moscada y crema. Si es necesario, agregar un poquito de leche descremada para obtener una consistencia más ligera.</li>
+<li> Rellenar los chiles repartiendo uniformemente la carne en las <strong> 6 piezas. <strong></li>
+<li> Servir el chile bañado parcialmente con la nogada, esparcir la granada encima y decorar con las hojas de perejil.</li>
+</ol>
 
 ![](DeadBlondEider-size_restricted.gif)
