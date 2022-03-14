@@ -3,6 +3,8 @@
 | Cantidad |Unidad de medida|Ingrediente|
 | ----------- | ----------- | ----------- |
 | 1  | cucharada | Caldo de costilla KNORR 
-| 3  | cucharada | Aceite vegtal 
+| 3  | cucharada | Aceite vegetal 
 
-![](https://gfycat.com/deadblondeider.gif)
+![](http://i.imgur.com/OUkLi.gif)
+
+
