@@ -39,9 +39,8 @@ _**Para los chiles**_
 
 #**PREPARACIÓN**#
 
-<li>Blue<li> 1.Para el relleno, calentar el aceite en una sartén grande, sofreír la cebolla y el ajo hasta que queden transparentes. Agregar la carne y cocinar hasta que tome color.
- 2. Agregar la manzana, pera, pasas, piñones y mezcla de condimentos. Sazonar con el Knorr® Caldo de Costilla incorporando todos los ingredientes _*Cocinar 3 min.*_
-
+<li>1.</li> Para el relleno, calentar el aceite en una sartén grande, sofreír la cebolla y el ajo hasta que queden transparentes. Agregar la carne y cocinar hasta que tome color.
+<li>2.</li> Agregar la manzana, pera, pasas, piñones y mezcla de condimentos. Sazonar con el Knorr® Caldo de Costilla incorporando todos los ingredientes Cocinar 3 min.
 
 
 ![](DeadBlondEider-size_restricted.gif)
