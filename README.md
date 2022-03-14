@@ -1,7 +1,7 @@
 # Chiles en Nogada
 ## Ingredientes
 
-Para El Relleno
+_**Para El Relleno**_
 | Cantidad |Unidad de medida|Ingrediente|
 | ----------- | ----------- | ----------- |
 | 1  | cucharada | Caldo de costilla KNORR 
@@ -16,6 +16,6 @@ Para El Relleno
 | 1  | cucharada | Piñones blancos  o rosas 
 | 1/2| cucaharada| Mezcla en partes iguales de pimienta negra, comino, canela, pimienta gorda y clavo en polvo
 | 2  | cucharadas| Knorr Tomate Deshidratado
-|1/2 | taza      | Agua
-
+|1/2 | taza      | Agua 
+**_<p><span style="color:red">Para la nogada<p>_**
 ![](DeadBlondEider-size_restricted.gif)
