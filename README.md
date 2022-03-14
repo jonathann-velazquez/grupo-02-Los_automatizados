@@ -18,7 +18,6 @@ _**Para El Relleno**_
 | 2  | cucharadas| Knorr Tomate Deshidratado
 |1/2 | taza      | Agua 
 
-![](DeadBlondEider-size_restricted.gif)
 
 _**Para la nogada**_
 | Cantidad |Unidad de medida|Ingrediente|
@@ -37,3 +36,12 @@ _**Para los chiles**_
 | 1  | Pizca     | Nuez Moscada en Polvo
 | 1  | Cucharada | perejil para decorar
 
+
+#**PREPARACIÓN**#
+
+1.Para el relleno, calentar el aceite en una sartén grande, sofreír la cebolla y el ajo hasta que queden transparentes. Agregar la carne y cocinar hasta que tome color.
+2. Agregar la manzana, pera, pasas, piñones y mezcla de condimentos. Sazonar con el Knorr® Caldo de Costilla incorporando todos los ingredientes _*Cocinar 3 min.*_
+
+
+
+![](DeadBlondEider-size_restricted.gif)
