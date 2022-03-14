@@ -4,3 +4,5 @@
 | ----------- | ----------- | ----------- |
 | 1  | cucharada | Caldo de costilla KNORR 
 | 3  | cucharada | Aceite vegtal 
+
+![](https://gfycat.com/deadblondeider.gif)
