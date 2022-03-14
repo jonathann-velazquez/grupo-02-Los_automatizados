@@ -5,6 +5,4 @@
 | 1  | cucharada | Caldo de costilla KNORR 
 | 3  | cucharada | Aceite vegetal 
 
-![](http://i.imgur.com/OUkLi.gif)
-
-
+![](DeadBlondEider-size_restricted.gif)
