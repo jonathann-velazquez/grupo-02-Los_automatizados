@@ -17,5 +17,23 @@ _**Para El Relleno**_
 | 1/2| cucaharada| Mezcla en partes iguales de pimienta negra, comino, canela, pimienta gorda y clavo en polvo
 | 2  | cucharadas| Knorr Tomate Deshidratado
 |1/2 | taza      | Agua 
-**_<p><span style="color:red">Para la nogada<p>_**
+
 ![](DeadBlondEider-size_restricted.gif)
+
+_**Para la nogada**_
+| Cantidad |Unidad de medida|Ingrediente|
+| ----------- | ----------- | ----------- |
+| 300| Gramos    | Nuez de castilla
+| 1  | cucharada | Azúcar 
+| 1  | Pizca     | Nuez Moscada en Polvo
+| 1/4| Taza      | Crema Reducida en grasa
+
+
+_**Para los chiles**_
+| Cantidad |Unidad de medida|Ingrediente|
+| ----------- | ----------- | ----------- |
+| 8  | Piezas    | Chiles poblanos, sin piel y sin semillas
+| 1  | Taza      | Granada Limpia 
+| 1  | Pizca     | Nuez Moscada en Polvo
+| 1  | Cucharada | perejil para decorar
+
