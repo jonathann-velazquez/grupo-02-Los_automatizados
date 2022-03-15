@@ -47,4 +47,16 @@ _**Para los chiles**_
 <li> Servir el chile bañado parcialmente con la nogada, esparcir la granada encima y decorar con las hojas de perejil.</li>
 </ol>
 
+_**Receta Casi Original del grupo de Chef_ATM**_
+| Nombres|
+| ----------- |
+| Andres Belendez
+| Rafael Garcia
+| Mariana Meneses
+| Jeannete Ramirez
+| Ivan Pacheco
+| Jeannete Ramirez
+| Jonathan Velazquez
+| César Vázquez
+
 ![](DeadBlondEider-size_restricted.gif)
